@@ -1,2 +1,2 @@
 # MovieVault
-Movie Review App
+Full Info Will Be Added Soon 👨🏻‍💻🔎
