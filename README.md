@@ -1,2 +1,2 @@
 # MovieVault
-Full Info Will Be Added Soon 👨🏻‍💻🔎
+Full Info about app Will Be Added Soon 👨🏻‍💻🔎
